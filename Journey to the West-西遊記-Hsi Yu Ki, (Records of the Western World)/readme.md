@@ -1,4 +1,4 @@
-https://github.com/user-attachments/assets/7a6d6e86-185d-4f86-83ed-ba6243d7fc55
+https://github.com/user-attachments/assets/fc0bab64-aa0b-4ceb-8e9f-ab5c5671c5f2
 
 ![JTW-3031-front-cover-672x1024](https://github.com/user-attachments/assets/49695fe9-2d64-474d-8c41-010b2eb7cf92)
 
